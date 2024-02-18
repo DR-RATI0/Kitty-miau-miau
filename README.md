@@ -1,7 +1,9 @@
 # Kitty-miau-miau
 
-HELLOOO!!!! I go by Kitphyre or/and Seki, but aome friends have names personally for me!! :3 
+HELLOOO!!!! I go by Kitphyre or/and Seki, but some friends have names personally for me!! :3 
+
         i will start with boundaries , Do not interact , interacts , fun facts , interests , call outs , I dont minds , and extras!
+        
                                                  I MAY FORGET SOME OF THESE AFTER TAKING A BREAK (GitHub readme's aren't easy. .)
 
 
